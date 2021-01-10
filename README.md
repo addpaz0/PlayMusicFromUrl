@@ -1,2 +1,2 @@
 # PlayMusicFromUrl
-https://github.com/addpaz0/PlayMusicFromUrl.git
+https://www.youtube.com/watch?v=Z4DQdeMAJRE
